@@ -9,7 +9,7 @@
   my name is anni im a big fan of a lot of media tbh just ask me if i like something i probably do 
 </p>
 <p align="center"> 
-  no dni i block people i dont like
+  basic dni but other than that i block people i dont like
 </p>
 <p align="center"> 
   i have npd, autism, did & more.  please keep this in mind when interacting 
