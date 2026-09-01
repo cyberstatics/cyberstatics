@@ -18,7 +18,7 @@
   i dont care about ship discourse. if you try to involve me in it you will be shot and killed
 </p>
 
-　 　 　 　 　 　 　　 i am also a [yumeshipper](https://hetalia.fandom.com/wiki/England) and an [introject](https://hetalia.fandom.com/wiki/Poland). i do not concern myself with doubles just be nice to me
+　 　 　 　 　 　　 i am also a [yumeshipper](https://hetalia.fandom.com/wiki/England) and an [introject](https://hetalia.fandom.com/wiki/Poland). i do not concern myself with doubles just be nice to me
 <p align="center">
  that's all you really need to know about me i think. ok  thank you bye
 </p>
