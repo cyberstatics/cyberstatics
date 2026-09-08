@@ -20,5 +20,10 @@
 
 　 　 　 　 　 　　 i am also a [yumeshipper](https://hetalia.fandom.com/wiki/England) and an [introject](https://hetalia.fandom.com/wiki/Poland). i do not concern myself with doubles just be nice to me
 <p align="center">
+ I LOVE MY PARTNERS YANG AND REN!!! I LOVE MY FRIENDS LUMI, MARVIN, FRANCIS, AJ, AME!!!
+</p>
+
+        
+<p align="center">
  that's all you really need to know about me i think. ok  thank you bye
 </p>
