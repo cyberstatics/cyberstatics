@@ -15,6 +15,9 @@
   i have npd, autism, did & more.  please keep this in mind when interacting 
 </p>
 <p align="center"> 
+  i have really bad social anxiety so i struggle talking to people first, i encourage you to sit with me!!
+</p>
+<p align="center"> 
   i dont care about ship discourse. if you try to involve me in it you will be shot and killed
 </p>
 
