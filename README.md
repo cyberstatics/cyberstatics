@@ -23,7 +23,7 @@
 
 　 　 　 　 　 　　 i am also a [yumeshipper](https://hetalia.fandom.com/wiki/England) and an [introject](https://hetalia.fandom.com/wiki/Poland). i do not concern myself with doubles just be nice to me
 <p align="center">
- I LOVE MY BOYFRIEND YANG!!! I LOVE MY FRIENDS IRIS, LACTOSE, FRANCIS, AJ, SCRIMBO, LEAF, PROPELLER, CLOVER, AKITA!!!
+ I LOVE MY BOYFRIEND YANG!!! I LOVE MY FRIENDS IRIS, LACTOSE, FRANCIS, AJ, SCRIMBO, LEAF, PROPELLER, CLOVER, AKITA, IVAN!!!
 </p>
 
         
