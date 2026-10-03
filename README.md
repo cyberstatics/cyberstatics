@@ -16,10 +16,6 @@
 </p>
 <p align="center"> 
   i have really bad social anxiety so i struggle talking to people first, i encourage you to sit with me!!
-</p>
-<p align="center"> 
-  i am PROFIC!! AHH!! SCARY!!! i only support darkshipping when it's in fiction! get help if it starts to become reality, ok? 
-</p>
 
 　 　 　 　 　 　　 i am also a [yumeshipper](https://hetalia.fandom.com/wiki/England) and an [introject](https://hetalia.fandom.com/wiki/Poland). i do not concern myself with doubles just be nice to me
 <p align="center">
