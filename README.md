@@ -18,7 +18,7 @@
   i have really bad social anxiety so i struggle talking to people first, i encourage you to sit with me!!
 </p>
 <p align="center"> 
-  i dont care about ship discourse. if you try to involve me in it you will be shot and killed
+  i am profiction, meaning i do not care what people do as long as it STAYS WITHIN FICTION. ship and let ship or whatever
 </p>
 
 　 　 　 　 　 　　 i am also a [yumeshipper](https://hetalia.fandom.com/wiki/England) and an [introject](https://hetalia.fandom.com/wiki/Poland). i do not concern myself with doubles just be nice to me
